@@ -16,4 +16,4 @@ Zapraszam do obejrznia na:
 
 http://vidownia.pl/czas-na-milosc-about-time-2013
 
-http://1.fwcdn.pl/po/44/32/644432/7563710.6.jpg?l=1377171564000
+![Czas na miłość online](http://1.fwcdn.pl/po/44/32/644432/7563710.6.jpg?l=1377171564000)
